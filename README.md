@@ -4,6 +4,6 @@ I'm Nicole Pepper, a graduate student at University of California, Santa Barbara
 
 
 😄 Pronouns: she/her
-- 📫 How to reach me: nicolelpepper@gmail.com
+📫 How to reach me: nicolelpepper@gmail.com
 
 
