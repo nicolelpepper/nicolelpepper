@@ -5,5 +5,5 @@ I'm a graduate student at University of California, Santa Barbara, pursuing a Ma
 
 - 😄 Pronouns: she/her
 - 📫 How to reach me: nicolelpepper@gmail.com
-
+- 🗺️ Feel free to explore my personal website here: https://nicolelpepper.github.io/
 
